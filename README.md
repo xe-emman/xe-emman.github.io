@@ -1,3 +1,3 @@
-# xe-emman.github.io
-# Xavier Emmanuel R. Pasiona
-## CN: 30
+# OWNER: *Xavier Emmanuel R. Pasiona*
+## WEBSITE: *COMPUTER PROJECT*
+
