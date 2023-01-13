@@ -33,3 +33,17 @@ KOBE
 ![Jelo Cruz](https://user-images.githubusercontent.com/122326631/212214894-bd9922f8-00dd-4e09-ba9f-2ad51453668b.png)
 ![Jelo Cruz](https://user-images.githubusercontent.com/122326631/212214894-bd9922f8-00dd-4e09-ba9f-2ad51453668b.png)
 ![Jelo Cruz](https://user-images.githubusercontent.com/122326631/212214894-bd9922f8-00dd-4e09-ba9f-2ad51453668b.png)
+
+- BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG 
+
+ IMPORTANT NOTICE
+| GIBO | DATE |
+| -----------| ----------- |
+| TUROG | JANUARY 13 |
+| TUROG | JANUARY 14 |
+| TUROG | JANUARY 15 |
+| TUROG | JANUARY 16 |
+| MATA | JANUARY 17 |
+| TUROG | JANUARY 18 |
+| MATA | JANUARY 19 |
+| MATA | JANUARY 20 |
