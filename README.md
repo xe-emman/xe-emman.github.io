@@ -1,6 +1,7 @@
-# OWNER: *Xavier Emmanuel R. Pasiona*
-## WEBSITE: *COMPUTER PROJECT*
+### OWNER: *Xavier Emmanuel R. Pasiona*
 
-*HOBBIES*
-- SPORTS
-- SLEEP
+# WELCOME TO MY WEBSITE!
+
+#### WEBSITE: *COMPUTER PROJECT*
+
+# *TAGA TURUROG MAN!*
