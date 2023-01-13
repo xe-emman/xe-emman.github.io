@@ -6,6 +6,9 @@
 
 # * WHAT IF MAHAL KA NG NANAY MO AS A FRIEND?*
 ## *TAGA TURUROG MAN!*
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mEJ_jxFJU_0?start=16" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 KOBE
 KOBE
 KOBE
