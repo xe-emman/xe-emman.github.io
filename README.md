@@ -4,8 +4,12 @@
 
 #### WEBSITE: *COMPUTER PROJECT*
 
+
+
 # * WHAT IF MAHAL KA NG NANAY MO AS A FRIEND?*
 ## *TAGA TURUROG MAN!*
+
+
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/mEJ_jxFJU_0?start=16" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
@@ -39,14 +43,7 @@ KOBE
 
 - BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG 
 
- IMPORTANT NOTICE
-| GIBO | DATE |
-| -----------| ----------- |
-| TUROG | JANUARY 13 |
-| TUROG | JANUARY 14 |
-| TUROG | JANUARY 15 |
-| TUROG | JANUARY 16 |
-| MATA | JANUARY 17 |
-| TUROG | JANUARY 18 |
-| MATA | JANUARY 19 |
-| MATA | JANUARY 20 |
+
+
+
+
