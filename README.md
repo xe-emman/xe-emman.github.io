@@ -4,7 +4,7 @@
 
 #### WEBSITE: *COMPUTER PROJECT*
 
-                              # * WHAT IF MAHAL KA NG NANAY MO AS A FRIEND?*
+             # * WHAT IF MAHAL KA NG NANAY MO AS A FRIEND?*
 ## *TAGA TURUROG MAN!*
 
 
