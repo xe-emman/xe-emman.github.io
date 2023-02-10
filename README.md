@@ -12,35 +12,10 @@
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/mEJ_jxFJU_0?start=16" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-KOBE
-### *YOU GUYS MAY CALL ME JELOOOOO CRUUUUUZ!*
-![Jelo Cruz](https://user-images.githubusercontent.com/122326631/212214894-bd9922f8-00dd-4e09-ba9f-2ad51453668b.png)
-![Jelo Cruz](https://user-images.githubusercontent.com/122326631/212214894-bd9922f8-00dd-4e09-ba9f-2ad51453668b.png)
-![Jelo Cruz](https://user-images.githubusercontent.com/122326631/212214894-bd9922f8-00dd-4e09-ba9f-2ad51453668b.png)
-![Jelo Cruz](https://user-images.githubusercontent.com/122326631/212214894-bd9922f8-00dd-4e09-ba9f-2ad51453668b.png)
 
-- BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG BALROG 
+# Go to Spotify playlist!
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/17raysHT7AlVodoeKgpfEE?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
 
